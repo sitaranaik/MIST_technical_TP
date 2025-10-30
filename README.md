@@ -1,1 +1,0 @@
-# MIST_technical_TP
